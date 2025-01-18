@@ -2,7 +2,14 @@
 
 En las últimas horas el artista está detrás de una fuerte polémica en las redes sociales, después que supuestamente un metraje privado fuera filtrado en internet, principalmente en Twitter (ahora X) y Telegram, donde se observa en situaciones comprometedoras en una moto de agua. ¿El video íntimo filtrado del Barbero exótico circula en redes sociales?
 
-Innumerables internautas comenzaron a apuntar sobre el material explícito del creador de contenido, está circulando ampliamente en las plataformas sociales lo que ha acusado innumerables reacciones en la red sumergiéndose en la búsqueda imparable del contenido en los motores de búsqueda de internet.
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
 
 Barbero Exótico: ¿cuál es el video en la moto de agua filtrado?
